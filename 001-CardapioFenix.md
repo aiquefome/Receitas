@@ -105,3 +105,71 @@
 - Fibras: 6g
 
 *Nota: Valores nutricionais são aproximados e podem variar dependendo da execução da receita e marcas dos ingredientes utilizados.*
+
+## Passo a Passo Detalhado do Preparo
+
+### Preparação Inicial (15 minutos)
+1. Separar todos os ingredientes
+2. Lavar todos os vegetais
+3. Preparar 2 panelas grandes para as carnes
+4. Preparar 1 panela grande para o arroz
+5. Preparar 1 panela média para o macarrão
+6. Separar tábuas e facas para cortes
+
+### Mise en Place (15 minutos)
+1. Cortar o frango em cubos de 3cm (toda a quantidade)
+2. Cortar os vegetais:
+   - Abobrinha e berinjela em cubos médios
+   - Brócolis em floretes pequenos
+   - Cenoura em cubos pequenos
+   - Pimentão em tiras finas
+   - Separar folhas de espinafre
+
+### Cozimentos Base (30 minutos)
+1. **Arroz (25 min)**:
+   - 3 xícaras de arroz + 6 xícaras de água
+   - Temperar com sal
+   - Cozinhar em fogo baixo após fervura
+
+2. **Molho de Tomate Base (20 min)**:
+   - Refogar alho e cebola
+   - Adicionar tomates picados
+   - Temperar com sal, pimenta e ervas
+   - Cozinhar até apurar
+
+3. **Penne (12 min)**:
+   - Cozinhar em água fervente com sal
+   - Escorrer e reservar
+
+### Preparo das Proteínas (30 minutos)
+1. **Frango Mediterrâneo**:
+   - Selar metade do frango em cubos
+   - Adicionar abobrinha e berinjela
+   - Incorporar parte do molho de tomate
+   - Finalizar com ervas
+
+2. **Strogonoff de Frango**:
+   - Selar a outra metade do frango
+   - Preparar molho com creme de leite e mostarda
+   - Adicionar brócolis no final
+
+3. **Carnes Moídas**:
+   - Dividir a carne em duas partes
+   - Para o chili: adicionar feijão, cenoura e pimentão
+   - Para a bolonhesa: incorporar molho de tomate e espinafre
+
+### Montagem (30 minutos)
+1. Separar 20 recipientes limpos
+2. Distribuir as porções conforme planejado:
+   - 5 marmitas de cada preparação
+   - Garantir proporção correta proteína/carboidrato/vegetais
+3. Deixar esfriar naturalmente
+4. Tampar apenas quando estiver em temperatura ambiente
+5. Etiquetar com nome do prato e data
+
+### Dicas de Execução:
+- Manter uma panela com água fervente para branquear vegetais
+- Usar timer para cada preparação
+- Limpar a medida que trabalha
+- Manter uma tigela de água com gelo para resfriar vegetais após branqueamento
+- Verificar temperaturas seguras antes de embalar
