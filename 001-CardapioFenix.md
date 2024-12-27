@@ -1,5 +1,15 @@
 # Cardápio Fênix
 
+## Índice
+1. [Frango Mediterrâneo com Tomate, Abobrinha e Berinjela](#1-frango-mediterrâneo-com-tomate-abobrinha-e-berinjela)
+2. [Strogonoff de Frango com Brócolis](#2-strogonoff-de-frango-com-brócolis)
+3. [Chili de Carne Moída com Feijão, Cenoura e Pimentão](#3-chili-de-carne-moída-com-feijão-cenoura-e-pimentão)
+4. [Bolonhesa de Carne Moída com Penne e Espinafre](#4-bolonhesa-de-carne-moída-com-penne-e-espinafre)
+5. [Fluxo de Preparo](#fluxo-de-preparo-2-horas-total)
+6. [Lista de Compras Total](#lista-de-compras-total-20-marmitas)
+7. [Macronutrientes Médios por Marmita](#macronutrientes-médios-por-marmita)
+8. [Passo a Passo Detalhado do Preparo](#passo-a-passo-detalhado-do-preparo)
+
 ## 1. Frango Mediterrâneo com Tomate, Abobrinha e Berinjela
 **Por porção (400g):**
 - Calorias: 380 kcal
